@@ -1,1 +1,1 @@
-https://www.paulwalkerfoundation.org Owned by Meadow Walker
+https://www.paulwalkerfoundation.org 
